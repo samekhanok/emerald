@@ -1,83 +1,71 @@
-## Facebook introduces emoticons instead of "dislikes"
+## Electric installation work"
 
-Facebook will finally fulfill the promise and expand the functions of the like button. Now it will be added as many as seven emoticons expressing a variety of emotions from the published post.
+Is it possible to imagine any modern building without electricity? Perhaps only with a very rich imagination. A warehouse or workshop, a store or cafe, a school or an office center, an apartment building in a city or a country cottage today cannot do without electricity.
 
- Earlier, Mark Zuckerberg reported on the development of a button expressing the “dislike” of the post. Users are waiting for its appearance almost from the day the social network was founded. However, instead of it, “reactions” will appear (Reactions) - that is the name of the developed function. The news highlighted the resource Engadget.com, citing employees of the company as a source of information.
+Electrical installation MoscowThe ultimate goal of electrical work is to install and connect all electrical appliances necessary for a successful work or a comfortable life. But this is just the tip of the iceberg.
 
-The usual "like" with it does not go anywhere. By clicking on the button, network users will be able to mark their favorite entry as before. Or choose a smiley to express your reaction to the content of the tape.
+A short list of electrical work, electrical services may look like this:
 
-# [FACEBOOK EMOJIS](https://wowemojis.com/facebook-emojis//) 
+    Assembly and installation of electrical panels, installation of automation.
+    Installation and transfer of electricity meters, switchboards, RCDs, circuit breakers.
+    Laying and replacing wiring.
+    Cable routing hidden or open.
+    Electrical wiring repair, troubleshooting.
+    Installation and replacement of sockets - network, telephone, television, power sockets.
+    Installation and replacement of circuit breakers.
+    Laying low-voltage networks (Internet, telephone, television, video monitoring and alarm systems).
+    Installation of lamps - chandeliers, sconces, spotlights.
+    Installation of LED light sources and decorative lighting.
+    Electrical connection of household appliances - electric stoves, water heaters, air conditioners, range hoods, washing machines, dishwashers, hobs, etc.
+    A full range of electrical work in an apartment and a country house, a store, an office center
 
-Engadget also posted a screenshot of emoticons. The images convey the following emotions: love, laughter, smile, surprise, sadness and anger. Residents of Spain and Ireland are luckier than others - they will be able to try out the "reaction" today - October 9th. The function will spread to other regions a bit later. There will also be involved the audience of the service for business communications Pages. Advertising services, however, will continue to consider the function as a "like".
+# [sparkselectricllc](https://sparkselectricllc.com//) 
 
-Opportunities to put Dislike to the post social network users have been waiting for more than one year. The creator of Facebook in this confirmed that the company is working on a similar function and its appearance should be expected in the near future.
+sparkselectricllc.com - the official website of professional teams of the Two Electrics company, which serves all areas of USA and the city of the USA region. It is worth adding that the electrical installation services, in particular, the installation of electrical appliances, must be carried out in accordance with the norms and standards in force in UNITED STATES. And our company complies with them.
+Work in the apartment
 
-Mark Zuckerberg also noted in his speech in December last year that the currently available functionality does not allow responding adequately to the content of the recording. It looks unnatural when you mark a post you like, and it talks about a social or cultural problem, loss and loss. The audience can express their emotions and show a real reaction thanks to a new feature. The developers have tried to display the full range of emotions in Reactions.
+An electrician in an apartment is like air or clean water: when everything works as it should, we don’t pay attention to the power grid at all and don’t think about how it works. And only after the appearance of malfunctions, small or large, we understand: without electricity we are very uncomfortable. And we are looking for professional electricians.
 
-From the statement of Zuckerberg, then it was concluded about the introduction of the long-awaited users "dislayka". However, the creator of the network has more than once stated that he will not introduce a button that allows him to directly “dislike” posts. He also identified several reasons why he wants to do this.
+Electrical services in the apartmentWiring work in the apartment is the supply of electricity to each room and the connection of all appliances: both household and necessary for the normal functioning of the electricity network (for example, automation and meters).
 
-First of all, it would make Facebook similar to a number of online forums, the principle of which is based on the UGC model of online media. Putting “Like / Dislike” marks in such a system would reduce or increase the rating.
+The main requirements that we make to the electricity network of the apartment:
 
-The second reason Zuckerberg called the reluctance to distribute the negative. It is more than enough in social networks, and more importantly - to prevent its appearance, and not to create tools for expressing discontent.
+    Safety and reliability.
+    A sufficient amount of electricity for the operation of all devices.
+    Ease of use of the network (for example, a sufficient number and proper location of sockets and switches).
 
-And the third reason is that it is not profitable for advertising. Not many companies would agree that posts with their products are subject to active “minus” by users.
+It is simple to call an electrician of the Two Electrics company, our experts will perform all the necessary work accurately and accurately. As a result, you will not have problems with lighting, household appliances will work, as expected, each outlet will be operational, the switches will be exactly where they are most convenient to use, and the Internet, telephone and cable television will always be available.
 
-Even after all this, Facebook users have not lost hope of the appearance of the “Dislink” button. The community of fans of this button currently has about 3.2 million participants. When there was an opportunity to sign the petition, it was supported by almost 1, 5 million people.
+##Work in the house
 
-Resource Fast Company is a different opinion from the creator of Facebook. The button would allow to mark negative events, expressing solidarity with this mark. And companies that would serve as a criterion for evaluating their advertising campaign. And most importantly - with its help it would be possible to mark truly annoying posts.
+Electrical work in the house To the power supply system of a country house, you can make the same requirements as for the network of a city apartment or office. But the electrician of a country house is a more complex system than a network in a single apartment. Indeed, in the cottage, it is necessary, in addition to standard household appliances, to connect an electric pump for local water supply, heating and ventilation systems, an alarm system, etc. Therefore, only high-class professionals should design a country house system and carry out electrical work.
+It is important that it is necessary to calculate the layout of household electrical appliances and lighting sources, choose electrical equipment and cables for the cottage depending on the materials from which the house is built.
+
+For example, more stringent requirements must be imposed on an electrician in a wooden cottage than on the same system mounted in a concrete cottage or in a brick mansion. After all, wood is a more fire hazardous material than concrete or brick. And here it is especially important to carry out all electrical work carefully and accurately so that there is not even a conditional possibility of fire due to faulty wiring.
+
+    Only qualified specialists work in our company, performing all work in strict accordance with the rules and safety standards.
+
+##Electrical services for wiring replacement
+
+Electrical services to replace old wiringReplacement of wiring is one of the most popular services. For example, in the old city fund, it is necessary to lay a new one instead of its worn out and unable to cope with the loads of wiring.
+
+Before replacing the wiring, it is necessary to draw up an accurate design of the electrical network. Well, then ditch the walls and lay the cable, make wiring and make connections.
+To get rid of a huge amount of wires in an apartment or office, cables are often laid in cable channels and corrugated pipes. Durable boxes not only hide the wiring from the eyes and help get rid of the web of various wires, but also protect the cable from mechanical damage.
+What determines the price
+
+
+For those who order electrical work, prices are not the last value. There is a rule that is familiar to all of us: the avaricious pays twice.
+
+    Electrical work is the complete power supply of the room, the installation of lamps and the connection of equipment. If necessary - installation of emergency lighting and additional power supplies plus installation of electrical safety systems. The final cost depends on the complexity of the project and the work performed, as well as on the quantity and quality of the materials and equipment used.
+
+The company "sparkselectricllc" works with reliable and trusted suppliers. We offer reasonable prices, as well as tangible discounts.
+
+Want to know more about our conditions, prices and guarantees? Call us today! (360) 623-5987
 
 
 ### Support or Contact
 
-Having trouble with Pages?[contact support]# [WOW EMOJIS](https://wowemojis.com//) and we’ll help you sort it out.
+Having trouble with Pages?[contact support]# [sparkselectricllc](https://sparkselectricllc.com//) and we’ll help you sort it out.
 
 
-![Emerald](/img/Emerald01.png "Emerald")
 
-## Setup & usage
-Emerald may be installed by simply downloading the .zip folder from the [repository on Github](https://github.com/KingFelix/emerald/archive/master.zip).
-
-After extracting the content from the folder into the selected directory, you can type ``jekyll serve`` from the terminal, than open your browser to ``0.0.0.0:4000/emerald/`` and you will find it there.
-
-Additionally it is possible to fork the repository and use Github Pages as hosting. By following this way it will be enough to change the ``baseurl`` value into the ``_config.yml`` file, with the directory name of your project (for example /blog) or simply with a "/" (slash) if you want install Emerald in the root.
-
-### Options
-Starting from the 1.1.0 version, you can customize Emerald thanks to a few options. Now it is possible to set a custom header tag by setting the related option in the ``_config.yml`` file to "true". Then insert your custom code into the ``header-custom.html`` file.
-In the same way, you can customize the footer of the navigation menu, by setting to "true" the related option and put your code into the ``nav-footer-custom.html`` file.
-Moreover it is now possible to select a reverse option that allows to move the navigation menu to the left side, by setting it to "true".
-
-### Colors
-The basic colors are set into the ``base.scss`` file:
-- $main-color: used for the menu, title, link and footer
-- $background-color: used for background and links in the navigation menu
-- $text-color: used for text and title in posts and pages 
-
-To customize the colors, just set the values in HEX, RGB (or RGBa) or any other format accepted by CSS.
-
-### Navigation menu
-Starting from the 1.1.0 version, the links inside the navigation menu are autogenerated from pages having the layout set to ``page``.
-You can set custom links, by putting in the ``<a>`` tag into the ``link.html`` file.
-
-### Branch
-Emerald has two branch: 
-- ``master``: is for developing pourpose.
-- ``gh-pages``: is only for demo site.  
-
-### Baseurl
-Emerald was thought to be used mainly with Github, in particular into [project site](https://pages.github.com/). For this reason several tags have been included ``{{ site.baseurl }}`` to refer to the "/emerald/" directory.
-You can change the "baseurl" value into the ``config.yml`` file, to match your directory (for example "/blog/") or the root of your project. In that case you must set the "baseurl" value to "/".
-
-### Typography
-To maintain the vertical rhythm, it has been applied a **Typographic scale** as a modular scale, with a baseline set to 24px. To maintain this rhythm you need to insert elements like image, video or other contents with a 24px (or multiple) height as refer.
-
-Last but not least: the [Jekyll documentation](http://jekyllrb.com) is the best starting point! 
-
-## Author
-
-### Jacopo Rabolini
-
-- Web site: [www.jacoporabolini.com](http://www.jacoporabolini.com)
-- Google+: [+JacopoRabolini](https://plus.google.com/u/0/+JacopoRabolini/posts)
-
-## License
-Emerald is released under [MIT License](license.md).
